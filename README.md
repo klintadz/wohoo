@@ -26,3 +26,7 @@ Oh, that would be a GREAT guest lecture!
 But the thing is – journalists are a very special breed. They don’t breakdown that easily.
 
 [ref-1]:https://www.youtube.com/watch?v=YrnvPhqdJt4
+
+
+
+
