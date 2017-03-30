@@ -24,3 +24,5 @@ What I think would be a great lesson for journalism students? A real-time, no-ho
 Oh, that would be a GREAT guest lecture!
 
 But the thing is – journalists are a very special breed. They don’t breakdown that easily.
+
+[ref-1]:https://www.youtube.com/watch?v=YrnvPhqdJt4
